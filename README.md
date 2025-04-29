@@ -31,3 +31,14 @@ A major part of the strategy is deciding content formats — such as blogs, Inst
 Promotion channels for this content are carefully selected: SEO-optimized blog publishing, sharing via social media, email newsletters, collaborations with food bloggers/influencers, and using WhatsApp Business for direct communication. The strategy also covers content distribution frequency, editorial calendar planning, and engagement measurement techniques using metrics like traffic, bounce rate, and shares.
 
 The deliverable is a clearly written Word/PDF file, presenting a comprehensive and actionable plan that Creamy Hub can implement to grow its content presence, improve organic visibility, and drive more sales.
+
+## Target Audience
+
+![Image](https://github.com/user-attachments/assets/3f9efd32-d189-40ca-8164-b928dadc7b3f)
+
+## Blog Topic Ideas
+
+
+
+## Promotion Channels
+
