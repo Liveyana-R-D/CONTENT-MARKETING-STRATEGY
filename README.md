@@ -38,7 +38,8 @@ The deliverable is a clearly written Word/PDF file, presenting a comprehensive a
 
 ## Blog Topic Ideas
 
-
+![Image](https://github.com/user-attachments/assets/483242cc-a543-48c8-8b3f-cd46360eab53)
 
 ## Promotion Channels
 
+![Image](https://github.com/user-attachments/assets/f0248f49-85b5-481c-a3a3-ee5fb27d16fa)
